@@ -26,7 +26,13 @@ julio| 20| estudante
 
 ##imagens
 
-![detetive pikachu]
+
+![pokemon-detetive-pikachu-filme](https://github.com/user-attachments/assets/d7726dbf-dd67-48b9-a68b-a0b7056a4ea5)
+
+
+##link
+
+https://www.max.com/br/pt?utm_id=1011l5873&utm_source=parole-creator&utm_medium=affiliate&clickref=1101lAqMWNTR
 
 
 
